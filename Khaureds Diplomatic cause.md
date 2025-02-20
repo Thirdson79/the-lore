@@ -1,9 +1,3 @@
-Author: Goodluck29(Thirdson)
-Wax wallet Adress:
-Khaureds Diplomatic cause: mission and alliance
-Date submitted:11/11/24
-Word count:5984
-Story status: khaureds series part 1
 
 The landscape of Khaur stretched endlessly, harsh and formidable, under a hazy red sky. The air, dense with toxic gases, held a strange beauty, with swirling clouds casting a perpetual twilight over the land. Nestled in the rugged terrain stood a Khaured city—an imposing fortress of brutalist architecture. Its walls, constructed from massive stone slabs reinforced with iron, loomed against the landscape, defying Khaur’s unrelenting gravity. Here, decoration was absent, every structure speaking only of function and resilience, values that the Khaureds held aboveall else.
 
